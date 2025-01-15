@@ -1,1 +1,1 @@
-# Certifications I have completed over the years
+Certifications I have completed over the years
